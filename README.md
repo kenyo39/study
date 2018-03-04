@@ -1,1 +1,1 @@
-# study
+git(pyton)•×‹­—p‚Å‚·
